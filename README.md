@@ -1,3 +1,3 @@
 # Verificador_de_pH
-minha mãe é a melhor pessoa do mundo
--Obrigada 
+minha mãe é a melhor pessoa do mundo \
+-Obrigada 💝 :shipit:
